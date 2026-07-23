@@ -54,4 +54,3 @@ Outside of tech, I train Muay Thai, teach kickboxing, and stay active through ru
 [LinkedIn](https://linkedin.com/in/yahirflores77) ·
 [GitHub](https://github.com/77yahir) ·
 [Email](mailto:yflore09@calpoly.edu) ·
-[Resume](YOUR_RESUME_LINK)
